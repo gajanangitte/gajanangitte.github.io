@@ -1,2 +1,1 @@
-# gajanangitte.github.io
-Hey There! I am Gajanan Gitte, have a look at my portfolio.......
+
